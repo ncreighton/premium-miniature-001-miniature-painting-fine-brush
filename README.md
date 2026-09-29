@@ -1,0 +1,2 @@
+# premium-miniature-001-miniature-painting-fine-brush
+Tired of forgetting that perfect wash ratio or the exact fine brush that made a 2mm eye pop? Stop relying on memory and start recording every micro-detail with precision.  This Notion template is the dedicated log for your miniature painting fine brush work, capturing everything from brush size and paint consistency to stroke technique and result.
